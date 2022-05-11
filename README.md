@@ -7,7 +7,7 @@ Our main goal is to have you—the investor—entrust us with expanding your inv
 
 By brining you constant utility, the star will continuously be lit and shine bright. At every point of the project there will good reason to own the tokens; they will never be rendered useless. As well, the low tax—6% on both buys and sells—makes it more affordable to trade, meaning there is greater access to entry. 
 
-Included in the utility is the opportunity to receive even more tokens through playing on our easy-to-use luminous space casino. If you dare, play on our casino and you may just reach luminosity.
+Included in the utility is the opportunity to receive even more tokens...
 
 
 
