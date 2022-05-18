@@ -1,4 +1,4 @@
-![imagee](./altair_logo.jpg)
+<img src="drawing.jpg" alt="drawing" width="200px"/>
 ## Overview 🪐
 Alpha Aquilae is the brightest star in the constellation of Aquila as well as the twelfth-brightest star in the night sky. As such, our token—Alpha Aquilae ($Altair)—seeks to bring light upon the darkness that, at times, infests the space. 
 
